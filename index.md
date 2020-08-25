@@ -1,1 +1,1 @@
-My name is Chris and I made this site to help you manage your money, grow your [[Savings]], make wise [[Investments]], and reach [[Financial Stability]].
+My name is Chris and I made this site to help you manage your money, grow your [[Savings]], make wise [[Investments]], and reach [[Financial Stability]]. Take control of your [[Personal Finance]].
